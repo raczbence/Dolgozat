@@ -1,1 +1,1 @@
-# Dolgozat
+Rácz Bence
